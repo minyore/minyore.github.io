@@ -1,0 +1,1 @@
+# minyore.github.io
